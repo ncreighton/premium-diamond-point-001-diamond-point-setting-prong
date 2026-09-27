@@ -1,0 +1,2 @@
+# premium-diamond-point-001-diamond-point-setting-prong
+Tired of scribbling prong measurements on scrap paper and losing track of which diamond point setting you planned for each stone? Stop juggling sticky notes and start crafting with clarity.  This Notion template transforms chaotic workshop notes into a structured, repeatable system for diamond point setting and prong work. It replaces fragmented me
